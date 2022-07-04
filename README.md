@@ -1,4 +1,4 @@
-## 𝐇𝐢𝐢 <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="25px"> 𝐈'𝐦 [💞 𝓣𝓮𝓬𝓱𝓷𝓸 𝓜𝓲𝓷𝓭𝔃 💞](https://t.me/technokillerbot)
+## 𝐇𝐢𝐢 <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="25"> 𝐈'𝐦 [💞 𝓣𝓮𝓬𝓱𝓷𝓸 𝓜𝓲𝓷𝓭𝔃 💞](https://t.me/technokillerbot)
 
 - **👀 I’m interested in Coding**
 
